@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey there, I'm Attah Amego! 👋<br><br>🎡 I'm currently learning more about Software & Network Engineering.<br>👩‍💻 I'm looking into Exploring Innovative Technologies for Business growth.<br>💻 Ask me about tech, design & business-related stuff.<br>📩 How to reach me: Email - attah.amego@gmail.com<br>☺ Pronouns: He/Him<br>⚡ Fun fact: I love seeing good movies...
+Hey there, I'm Attah Amego! 👋<br><br>🎡 I'm currently learning more about Software & Network Engineering.<br>👩‍💻 I'm looking into exploring Innovative Technologies for Business growth.<br>💻 Ask me about tech, design & business-related stuff.<br>📩 How to reach me: Email - attah.amego@gmail.com<br>☺ Pronouns: He/Him<br>⚡ Fun fact: I love seeing good movies...
 
 
 ## 🌐 Socials:
